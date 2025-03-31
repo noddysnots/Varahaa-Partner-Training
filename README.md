@@ -1,1 +1,0 @@
-# Varahaa-Partner-Training
